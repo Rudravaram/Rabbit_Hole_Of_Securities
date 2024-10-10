@@ -13,3 +13,6 @@ By understanding and addressing the unique challenges within each of these domai
 
 Here's a Landscape of how the world looks like - https://bra.in/4pKzRr (For the optimal experience, we recommend using a desktop browser, specifically Microsoft Edge.)
 
+![image](https://github.com/user-attachments/assets/d3dbc88b-161c-4f71-9459-0a9b6959ca7d)
+![image](https://github.com/user-attachments/assets/4bb091d0-b686-4aed-8cf7-be666ae7ae91)
+![image](https://github.com/user-attachments/assets/a5821f3f-73e3-4faa-a11a-8af7ff442840)
